@@ -1,0 +1,2 @@
+# zero
+never give up
